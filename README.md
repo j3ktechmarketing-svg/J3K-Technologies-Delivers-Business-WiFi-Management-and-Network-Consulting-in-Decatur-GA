@@ -1,4 +1,4 @@
-## J3K Technologies Delivers Business WiFi Management, Enterprise WiFi Deployment, and Network Consulting in Decatur, GA
+## J3K Technologies Delivers Business WiFi Management, Enterprise WiFi Deployment, and Network Consulting in Decatur GA
 
 From cloud applications and video conferencing to customer engagement platforms and connected devices, organizations depend on reliable network performance to remain productive and competitive. A slow, unreliable, or poorly managed wireless network can lead to operational delays, frustrated employees, security risks, and lost business opportunities.
 
